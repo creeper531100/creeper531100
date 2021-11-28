@@ -1,6 +1,6 @@
 順康車業專業改裝旗艦店<br>
 ====
-- 🚘JET SMAX、DRG BTorrent、Z1 Altis改裝 <br>
+🚘 JET SMAX、DRG BTorrent、Z1 Altis改裝 <br>
 百年老店的技術與品質，提供一個月不滿意換車等保固。<br>
 歡迎來店賞車~<br>
 
